@@ -154,7 +154,8 @@ Initially created by [Marko Denic](https://twitter.com/denicmarko) on [Twitter](
 | https://icons8.com/ouch |  
 | https://iradesign.io |  
 | https://interfacer.xyz |  
-| https://blush.design |  
+| https://blush.design |
+| https://www.humaaans.com |
 
 [⬆ back to top](#table-of-contents)
 
